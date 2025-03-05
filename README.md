@@ -1,0 +1,1 @@
+# Tradingale-Whitepaper
